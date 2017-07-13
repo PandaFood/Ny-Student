@@ -10,11 +10,12 @@ Det värsta som kan hända under nolle-p är att stå utan bostad. Därför har 
 Tänk även på att ta med lite extra pengar. Av erfarenhet kan vi säga att det gärna går åt lite mer den här perioden (inte minst på kvällarna) än man tänkt sig och även om de flesta studenter någon gång under sin studietid fått leva på nudlar är det alltid skönt att slippa.
 
 En annan sak som kan vara bra att tänka på är att om du inte idag använder Facebook kan det vara en bra idé att skaffa ett konto. Majoriteten av alla föreningar och event på skolan förmedlar sin information via FB. Har ni frågor eller behöver hjälp med någonting innan ni kommer upp finns det redan en facebookgrupp för bara er, där ni även kan komma i kontakt med oss. Fråga precis så mycket ni vill!
-Och avslutningsvis det viktigaste av allt: Var nyfiken, och ha jävligt roligt!
+Och avslutningsvis det viktigaste av allt: 
+
+Var nyfiken, och ha jävligt roligt!
 Med vänliga hälsningar
 Arksamphösarna 2017
 
-Bra länkar till annan viktig info
 ## CSN
 
 www.CSN.se 
