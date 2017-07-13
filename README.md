@@ -70,17 +70,10 @@ Se till att söka CSN för **hela året** då du som förstagångs student har m
 Omoral är en roman om hur studentlivet i Luleå kan se ut, om man är intresserad av den sidan av studierna. Boken är skriven av en tidigare student vid LTU och var den bäst säljande e-boken på adlibris under nolle-p 2014.
 [Omoral](http://Omoral.com)
 
-Bonus 2: Märken
-Märken är ett sätt för dig som student att uttrycka vem du är genom din ovve, vissa väljer att täcka ovven helt i märken andra har knappt några märken alls. Detta är upp till var och en! Vill man fylla ut sin ovve med roliga märken så rekommenderar vi facebooksidorna 
-Märkligt         - Gruppen är tänkt till att:
--Få hjälp med finansiering av märken.
--Få hjälp och råd till design av märken
--Byte av märken.
 
-Omärkvärdigt         - Gruppen fokuserar på att byta märken och ha auktioner 
+## Bonus 2: Märken
+Märken är ett sätt för dig som student att uttrycka vem du är genom din ovve, vissa väljer att täcka ovven helt i märken andra har knappt några märken alls. Detta är upp till var och en! Vill man fylla ut sin ovve med roliga märken så rekommenderar vi facebooksidorna
 
-Bonus 3: Studentrecept
-Dessa är recept som vi har samlat in de åren som vi gått på universitet
-Nudlar
-Har du ingen mikro så ta stekpannan, Detta är testat med Billys och Fungerar, 10/10 would do again
-Sweet chilli gör att man kan äta allt! Även hundmat
+[Märkligt](https://www.facebook.com/groups/Markligt/)         
+
+[Omärkvärdigt](https://www.facebook.com/groups/402962186406237/)
