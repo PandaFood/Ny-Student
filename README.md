@@ -16,42 +16,58 @@ Arksamphösarna 2017
 
 Bra länkar till annan viktig info
 ## CSN
+
 www.CSN.se 
-Se till att söka CSN för hela året då du som förstagångs student har möjligheten att behålla CSN vid 5 utav 8 kurser klarade när standarden för andragångs studenter, och de som söker studiemedel per halvår, behöver 6 utav 8 för behålla CSN.  
+Se till att söka CSN för **hela året** då du som förstagångs student har möjligheten att behålla CSN vid 5 utav 8 kurser klarade när standarden för andragångs studenter, och de som söker studiemedel per halvår, behöver 6 utav 8 för behålla CSN. Det blir desutom jobbigt i vinter då du måste vänta tills tentamen är rättad för att få CSN.
 
 
 # Info för nya studenter
-(FB) Nya studenter@LTU
-Karta över Campus
-Info om boende
-## Andrahandsuthyrning till LTU-studenter på fb, här hyr många ut under just nolleperioden:
-(FB) Ge tak åt en student@LTU 
-En facebook grupp med folk i luleå som hyr ut och säljer lägenheter:
-(FB) Bostäder Luleå 
+[(FB) Nya studenter@LTU](https://www.facebook.com/groups/249379248513482/)
 
-### Har du inte redan gjort det, skriv genast upp dig på kö för de tre största hyresbolagen för studentbostädar i Luleå. Det kan vara bra att skriva upp sig även om man redan har ordnat sitt boende, inför framtiden:
-Studentbostadsservice (Lindbäcks)
-Rikshem
-Heimstaden
-Bostad Luleå
-Några andra bra länkar:
-Studentbostadsservice andrahandsuthyrning
-Luleå Studentguide
-Blocket Bostad @Luleå
-Vandrarhem I Luleå:
-Citysleep - mitt i centrum
-Nordkalotten - en bit utanför luleå med okej bussförbindelse
+[Karta över Campus](https://www.ltu.se/maps/campusmap/)
+## Info om boende
+### Andrahandsuthyrning till LTU-studenter på fb, här hyr många ut under just nolleperioden:
 
-Andra länkar:
-(FB) Arkitektur '17
-(FB) Samhällsbyggnad '17
-Geosektionen
-Teknologkåren
+[(FB) Ge tak åt en student@LTU](https://www.facebook.com/groups/185241421543279/)
+### En facebook grupp med folk i luleå som hyr ut och säljer lägenheter:
+
+[(FB) Bostäder Luleå](https://www.facebook.com/groups/lulealagenheter/)
+
+### Har du inte redan gjort det, skriv genast upp dig på kö för hyresbolagen för studentbostädar i Luleå. Det kan vara bra att skriva upp sig även om man redan har ordnat sitt boende, inför framtiden:
+
+[Studentbostadsservice (Lindbäcks)](https://www.studentbostadsservice.se/)
+
+[Rikshem](rikshem.se)
+
+[Heimstaden](heimstaden.com)
+
+[Bostad Luleå](bostadlulea.se)
+
+[Studentbostadsservice andrahandsuthyrning](https://www.studentbostadsservice.se/andrahandsformedling/)
+
+[Luleå Studentguide](http://www.luleastudent.se/studentboende-i-lulea/)
+
+[Blocket Bostad @Luleå](https://www.blocket.se/bostad/uthyres?sort=&ss=&se=&ros=&roe=&bs=&be=&mre=&q=&q=&q=&is=1&save_search=1&l=0&md=th&f=p&f=c&f=b&ca=11&m=9&w=101)
+
+### Vandrarhem I Luleå:
+
+[Citysleep - mitt i centrum](http://www.citysleep.se/)
+
+[Nordkalotten - en bit utanför luleå med okej bussförbindelse](http://www.nordkalotten.com/)
+
+## Andra länkar:
+
+[(FB) Arkitektur '17](https://www.facebook.com/groups/251188025379808)
+
+[(FB) Samhällsbyggnad '17](https://www.facebook.com/groups/1857838384469411)
+
+[Geosektionen](https://www.facebook.com/geosektionen.se)
+
+[Teknologkåren](https://www.facebook.com/teknologkaren)
 
 
-Bonus: Omoral
+## Bonus: Omoral
 Omoral är en roman om hur studentlivet i Luleå kan se ut, om man är intresserad av den sidan av studierna. Boken är skriven av en tidigare student vid LTU och var den bäst säljande e-boken på adlibris under nolle-p 2014.
-
 [Omoral](http://Omoral.com)
 
 Bonus 2: Märken
