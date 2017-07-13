@@ -24,7 +24,7 @@ www.CSN.se
 Se till att söka CSN för **hela året** då du som förstagångs student har möjligheten att behålla CSN vid 5 utav 8 kurser klarade när standarden för andragångs studenter, och de som söker studiemedel per halvår, behöver 6 utav 8 för behålla CSN. Det blir desutom jobbigt i vinter då du måste vänta tills tentamen är rättad för att få CSN.
 
 
-# Info för nya studenter
+## Info för nya studenter
 [(FB) Nya studenter@LTU](https://www.facebook.com/groups/249379248513482/)
 
 [Karta över Campus](https://www.ltu.se/maps/campusmap/)
