@@ -28,9 +28,9 @@ www.CSN.se
 Se till att söka CSN för **hela året** då du som förstagångs student har möjligheten att behålla CSN vid 5 utav 8 kurser klarade när standarden för andragångs studenter, och de som söker studiemedel per halvår, behöver 6 utav 8 för behålla CSN. Det blir desutom jobbigt i vinter då du måste vänta tills tentamen är rättad för att få CSN.
 
 ## Nolleperiodsschema
-#[Samhällsbyggnads Schema](https://www.ltu.se/cms_fs/1.81686!/file/Samhallsbyggnad.pdf)
+### [Samhällsbyggnads Schema](https://www.ltu.se/cms_fs/1.81686!/file/Samhallsbyggnad.pdf)
 
-#[Arkitekturs Schema](https://www.ltu.se/cms_fs/1.81628!/file/Arkitektur.pdf)
+### [Arkitekturs Schema](https://www.ltu.se/cms_fs/1.81628!/file/Arkitektur.pdf)
 
 
 ## Info för nya studenter
