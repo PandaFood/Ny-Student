@@ -1,2 +1,7 @@
 theme: jekyll-theme-slate
 title: Ny student på LTU Arkitektur/Samhällsbyggnad '17
+gems:
+   - jekyll-coffeescript
+   - jekyll-paginate
+   - jekyll-seo-tag
+description: För nya studenter på LTU
