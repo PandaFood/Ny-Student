@@ -4,6 +4,10 @@ Det första du behöver tänka på är: Oroa dig inte! Under de första veckorna
 
 Du kommer få ta del av massa roliga aktiviteter och upplevelser som arbetats fram under åren för att du ska få en så bra start som möjligt. Det är allt från intressanta föreläsningar till tävlingar och varje kväll kommer universitetets nattklubb STUK stå till ert förfogande. Det är mycket som händer den här perioden och även om allt är helt frivilligt så rekommenderar vi starkt att försöka vara med på så många aktiviteter som möjligt.
 
+Kårmedlemskap är också en sak vi rekommenderar. Med kårmedlemskap får du en massa förmåner, till exempel att kunna köpa NolleParmband och  billigare luncher. De kommer också erbjuda en massa mässor och andra erbjudande.
+
+I början av Nolleperioden kommer du att kunna köpa nollearmbandet. Det är ett armband som ger dig tillgång till alla aktiviteter, förutom några sittningar, samt gratis inträde till STUK nattklubb på kvällen. Vi rekommenderar stark att du köper det, men det är självfallet frivilligt att göra.
+
 Det är också viktigt att du ser till att få i dig mat under NolleP, därför rekommenderar vi att du har gjort en del matlådor innan nolleP börjar. Det kommer bli lite tid då du hinner laga mat. Det finns möjlighet att köpa mat på campus, men det är ändå bra att ha färdiglagad mat hemma. 
 
 Det värsta som kan hända under nolle-p är att stå utan bostad. Därför har vi samlat lite länkar här nere med info om vart man kan hitta just det. Även om du inte hittat något fast boende så rekommenderar vi att komma hit och hyra in sig någonstans under själva nolleperioden. Oftast går det att hitta någon annan att hyra in sig hos. Kanske någon klasskompis att dela med. Tänk också på att det är viktigt att det är du själv som lägger ut, eller svarar på, annonser. De flesta som hyr ut via facebook är själva studenter och vill gärna att det är den som önskar hyra som de får prata med, står ni utan under Nolleperioden så kontakta oss phösare så hjälper vi till så gott det går.
@@ -16,12 +20,16 @@ Var nyfiken, och ha jävligt roligt!
 
 Med vänliga hälsningar
 
-**Arksamphösarna 2017**
+[**Arksamphösarna 2017**](https://www.ltu.se/cms_fs/1.81628!/file/ArkSam%20%281%29.pdf)
 
 ## CSN
 
 www.CSN.se 
 Se till att söka CSN för **hela året** då du som förstagångs student har möjligheten att behålla CSN vid 5 utav 8 kurser klarade när standarden för andragångs studenter, och de som söker studiemedel per halvår, behöver 6 utav 8 för behålla CSN. Det blir desutom jobbigt i vinter då du måste vänta tills tentamen är rättad för att få CSN.
+
+## Nolleperiodsschema
+#[Samhällsbyggnads Schema](https://www.ltu.se/cms_fs/1.81686!/file/Samhallsbyggnad.pdf)
+#[Arkitekturs Schema](https://www.ltu.se/cms_fs/1.81628!/file/Arkitektur.pdf)
 
 
 ## Info för nya studenter
